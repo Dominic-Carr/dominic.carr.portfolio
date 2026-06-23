@@ -1,0 +1,5 @@
+I am an aspiring Mechanical Engineer with hands-on experience applying CAD tools and engineering fundamentals to practical projects. Proficient in AutoCAD and SOLIDWORKS with working knowledge of Python and laser cutting, complemented by strong communication, team leadership, and customer-service skills developed in fast-paced service roles. Focuses on efficient design, manufacturability, and safety while pursuing opportunities to contribute to product development and learn advanced mechanical systems.
+
+I have gained experience through employment such as Brooks Pond Apartments, Market Basket, and Mass Youth Soccer.  I plan to continue with these experiences as I progress throughout my time at Northeastern on a 5-year, 2 co-op path, graduating in December 2029.
+
+On campus I am an active member in Northeastern Electric Racing, and I am also a part of the American Society of Mechanical Engineers.  I am learning from these clubs and societies and plan to take a more active role in the future.
